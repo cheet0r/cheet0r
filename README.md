@@ -17,7 +17,7 @@ dni
 - [basic dni criteria](https://listography.com/dni),
 - dsmp fans.
 - if you're gonna say sexual stuff about me ?? its a pixel horse game just stop
-- there is more but i will just block/hide people freely
+- also i will just block/hide freely
 
 thanks 4 reading 
 
