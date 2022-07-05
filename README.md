@@ -7,6 +7,7 @@ pls pls interact if you like any of my interests that r in my rentry!! in partic
 - persona games (not just p5)
 - visual kei
 - grass or ghost type pokémon
+- kagerou project
 - rhythm games
 
 very thin ice.. 
