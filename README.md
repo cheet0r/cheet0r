@@ -7,7 +7,7 @@ pls pls interact if you like any of my interests that r in my rentry!! in partic
 - visual kei
 - grass or ghost type pokémon
 
-thin ice.. 
+very thin ice.. 
 - genshin fans, but just dni if you support mihoyo 
 - fnf fans.. 
 - mha fans 
