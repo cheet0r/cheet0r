@@ -1,5 +1,6 @@
-hi this is a byi for ponytown
+hi this is a **byi** for ponytown
 
+*im afk most of the time im on the game, so if i don't respond im very sorry!!*
 
 pls pls interact if you like any of my interests that r in my rentry!! in particular,
 - vocaloid (especially flower and gumi)
