@@ -16,6 +16,7 @@ very thin ice..
 - mha fans 
 - cookie run fans (dni if you support devsisters though)
 - mane 35 users
+- danganronpa fans
 
 dni
 - [basic dni criteria](https://listography.com/dni),
