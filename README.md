@@ -16,13 +16,15 @@ very thin ice..
 - fnf fans.. 
 - mha fans 
 - cookie run fans (dni if you support devsisters though)
-- mane 35 users
+
 - danganronpa fans
 
 dni
 - [basic dni criteria](https://listography.com/dni),
 - dsmp fans.
+- citrus fans
 - if you're gonna say sexual stuff about me ?? its a pixel horse game just stop
+- if you fake disorders
 - also i will just block/hide freely
 
 thanks 4 reading 
