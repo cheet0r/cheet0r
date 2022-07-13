@@ -16,7 +16,6 @@ very thin ice..
 - fnf fans.. 
 - mha fans 
 - cookie run fans (dni if you support devsisters though)
-
 - danganronpa fans
 
 dni
