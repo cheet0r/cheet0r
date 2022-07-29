@@ -26,6 +26,8 @@ dni
 - if you think bi/pan lesbians exist or are valid
 - dsmp fans.
 - citrus fans
+- ybc fans
+- if you think fiction doesn't affect reality
 - if you're gonna say sexual stuff about me ?? its a pixel horse game just stop
 - if you fake disorders
 - also i will just block/hide freely
